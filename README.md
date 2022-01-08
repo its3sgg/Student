@@ -1,11 +1,7 @@
 
-Dukung channel dengan cara Subscribe, like dan komen ... ( gratis kok bos ) 
-
-aktifkan juga lonceng nya, biar gak ketinggalan video yang lain.
+bruh try urself lol and im not responsible for account ban
+(EDUCATIONAL PURPOSE ONLY)
 
 
 
 > [![Deploy](https://www.herokucdn.com/deploy/button.png)](https://dashboard.heroku.com/new?template=https://github.com/its3sgg/Student)
-
-
-Terima kasih buat yang udah Subscribe ...
